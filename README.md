@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Knight.
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: huuuuuude murder mystery enthusiast
+- ⚡ Fun fact: huuuuuuge murder mystery enthusiast
 
 <!---
 nxcturnalknight/nxcturnalknight is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
